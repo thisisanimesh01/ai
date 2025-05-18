@@ -1,2 +1,2 @@
 # ai
-trying to make something cooL
+trying to make something cooL..
